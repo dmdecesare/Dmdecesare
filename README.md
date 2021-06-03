@@ -6,7 +6,7 @@ Some of my hobbies include:
 - mountain biking
 - sking
 - golfing
-- 
+
 ![Mammoth Mountain, CA](IMG_1759.jpg)
 
 
